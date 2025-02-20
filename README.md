@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PINSXL
 - 👀 I’m interested in any gaming stuff and even programming! I love anime, motorsport and art.
-- 🌱 I’m currently learning anatomy for drawings(´～｀) and im trying to learn japanese!
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me → on discord! My user is pinsxl
 - 😄 Pronouns: she/her!
